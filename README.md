@@ -1,1 +1,1 @@
-💻 Aluna de **Bacharelado em Tecnologia da Informação** na Universidade Virtual do Estado de São Paulo e do **Técnico em Análise e Desenvolvimento de Sistemas** na ETEC - Escola Técnica Estadual. Interessada em programação, dados, desenvolvimento de software e tecnologia. 🚀
+💻 Estudante do **Bacharelado em Tecnologia da Informação** na Universidade Virtual do Estado de São Paulo (UNIVESP) e do **Técnico em Análise e Desenvolvimento de Sistemas** na ETEC - Centro Paula Souza. Interessada em programação, dados, desenvolvimento de software e tecnologia. 🚀
